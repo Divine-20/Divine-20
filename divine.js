@@ -1,1 +1,0 @@
-let theVariable = 56
