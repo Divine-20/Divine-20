@@ -1,2 +1,2 @@
-Contact me via divineingabire69@gmail.com
+Contact me via divine@withintech.org
 
